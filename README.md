@@ -1,4 +1,5 @@
 ## Hello!!!
 
-![sua___alienstage_by_yowamuyu_djpqwby-pre](https://github.com/user-attachments/assets/c454ef88-e0a5-47e2-bb01-7226de36056a)
+
+![13-139793_dividers-png-fancy-page-divider-png-transparent-png](https://github.com/user-attachments/assets/cdd4215e-d394-4447-8a22-2c33558e2783)
 
