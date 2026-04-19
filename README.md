@@ -7,7 +7,7 @@ Hii!! Im Nari/Lily^^ Im lowkey a dry texter sometimes but not like hella dry, th
 
 ★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★
 
-I love my 2 hbs I love you ray(my son,my brother myIVAN TO MY SUA!!!)but plspls stop ragebaiting me ugh...! and dream ummmsm very supportive hb yes i should keep living because I need to scissor first! 
+I love my hb I love you ray(my son,my brother myIVAN TO MY SUA!!!)but plspls stop ragebaiting me ugh...! and I LOVE MY HG MY MIZI YESYESLOVE U AYUU
 
 ANYWAY!!theres more about me on my strawpageSOCHECK IT
 
