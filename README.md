@@ -13,4 +13,4 @@ ANYWAY!!theres more about me on my strawpageSOCHECK IT
 
 ★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★
 
-PL/ENG BTW!! AND MY DISCORD IS the0nlyheartbreaker
+PL/ENG BTW!! AND MY DISCORD IS highschoolsweeth3arts
