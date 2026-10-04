@@ -7,10 +7,10 @@ Hii!! Im Nari/Lily^^ Im lowkey a dry texter sometimes but not like hella dry, th
 
 ★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★
 
-I love my hb I love you ray(my son,my brother myIVAN TO MY SUA!!!)but plspls stop ragebaiting me ugh...! and I LOVE MY HG MY MIZI YESYESLOVE U AYUU
+I love my hb I love you ray(,my brother myIVAN TO MY SUA!!!)but plspls stop ragebaiting me ugh...!
 
 ANYWAY!!theres more about me on my strawpageSOCHECK IT
 
 ★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★★
 
-PL/ENG BTW!! AND MY DISCORD IS highschoolsweeth3arts
+PL/ENG BTW!! AND MY DISCORD IS sn0wflaked0ll
